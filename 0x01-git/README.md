@@ -1,1 +1,1 @@
-My friend list
+I love all my friends
